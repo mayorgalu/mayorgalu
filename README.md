@@ -9,4 +9,4 @@
 - 📫 How to reach me: ... message me via LinkedIn @mayorgalu, but be specific and introduce yourself, don't just do creepy requests.
 - 😄 Pronouns: ... She/Her
 - ⚡ Fun fact: ... I practice mindful surfing for myself but I volunteer teaching yoga and mindfulness to really stressed out kids. Did you know you can meditate while you code? 
--->
+
