@@ -1,4 +1,4 @@
-### Hi there, I'm the mother of three snow wolf-dragons 👋
+### Hi there, I'm the mother of three snow wolf-dragon dogs 👋
 🐺👑Cacique Jack, 🐺🎸Rock Stark and 🐺🤘🏼Alpha-Bet
 
 - ⛑👩‍🏫 I’m currently working on ... a voice to text disaster response application to identify where people need food, water, electricity and medical care in case of an emergency, so we can help K-12 teachers back to teaching kids living in difficult circumstances.
