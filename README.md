@@ -18,4 +18,4 @@ Fun Tidbits:
 
 - 😄 Pronouns: ... She/Her
 
--I practice mindful surfing for myself but I volunteer teaching yoga and mindfulness to really stressed out kids. Did you know you can meditate while you code? 
+- I practice mindful surfing for myself but I volunteer teaching yoga and mindfulness to really stressed out kids. Did you know you can meditate while you code? 
